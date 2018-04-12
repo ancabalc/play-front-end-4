@@ -6,3 +6,4 @@ Szasz Norbert Zsolt
 Popa Serban
 Gavris Horea!
 David Pintican
+Florina Suciu
