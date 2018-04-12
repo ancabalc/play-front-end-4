@@ -11,6 +11,8 @@ Szasz Norbert Zsolt
 
 
 
+
+
 Gavris Horea!
 
 
@@ -26,4 +28,12 @@ Gavris Horea!
 
 
 
+
+
+
 Torjai Tamasssssss
+
+Popa Serban
+
+Gavris Horea!
+
